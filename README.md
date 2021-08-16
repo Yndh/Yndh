@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ZI0MSKI
+- 👀 I’m interested in programing
+- 📫 How to reach me on discord - ZIOMSKI#0010
