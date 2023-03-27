@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @ZI0MSKI
+- 👋 Hi, I’m @Yndh
 - 👀 I’m interested in programing
-- 📫 How to reach me on discord - ZIOMSKI#0010
+- 📫 How to reach me on discord - yndh#0010
